@@ -1,1 +1,1 @@
-# Database-Assignment-Week-2
+EXCELLENCE
